@@ -1,1 +1,0 @@
-# Sope's Notes
